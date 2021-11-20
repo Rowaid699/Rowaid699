@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...AI
 - 🌱 I’m currently learning ...sc/ai
 - 💞
-- 📫 How to reach me ...+96278086604
+- 📫 How to reach me ...+962780866040
 
 <!---
 Rowaid699/Rowaid699 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
